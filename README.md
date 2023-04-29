@@ -1,0 +1,1 @@
+# Spot-encryption-An-area-of-interest-photographic-encryption-technique
